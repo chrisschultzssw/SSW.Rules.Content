@@ -16,10 +16,10 @@ It can be difficult to get everybody into a meeting, especially these days when 
 
 You have already [shared the agenda](https://www.ssw.com.au/rules/share-the-agenda), so pick out the best item and ping the decision maker/s before the meeting: *"We're meeting in 30 minutes, I'm excited to be talking about xxx"*.
 
-### Be Persistent
+### Be persistent
 
 If the meeting should have started and the decision maker/s have not joined, add them to the call (if possible), ping them again, or call them. If you don't get a response, tell them *"I will call you towards the end of the meeting to go for a summary"*, as per [Do you know how to loop someone in at the end of a meeting?](https://www.ssw.com.au/rules/loop-someone-in)
 
-### Be Proactive
+### Be proactive
 
 Don't just wait around for everyone to be there - once you have done the above and the decision maker/s have a delegate, start the meeting. You may choose to start with smaller agenda items, or "For information" items that can easily be summarised at the end.
