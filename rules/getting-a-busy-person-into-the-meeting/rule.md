@@ -18,8 +18,8 @@ You have already [shared the agenda](https://www.ssw.com.au/rules/share-the-agen
 
 ### Be Persistent
 
-If the meeting should have started and the decision maker/s have not joined, add them to the call (if possible), ping them again, or call them. If you don't get a response, tell them *"I will call you towards the end of the meeting to go for a summary"*,as per [SSW.Rules | Do you know how to loop someone in at the end of a meeting?](https://www.ssw.com.au/rules/loop-someone-in)
+If the meeting should have started and the decision maker/s have not joined, add them to the call (if possible), ping them again, or call them. If you don't get a response, tell them *"I will call you towards the end of the meeting to go for a summary"*, as per [Do you know how to loop someone in at the end of a meeting?](https://www.ssw.com.au/rules/loop-someone-in)
 
 ### Be Proactive
 
-Don't just wait around for everyone to be there - once you have done the above and the decision maker/s have a delegate, start the meeting. You may choose to start with smaller agenda items, or "For information" items that can be easily summarised at the end.
+Don't just wait around for everyone to be there - once you have done the above and the decision maker/s have a delegate, start the meeting. You may choose to start with smaller agenda items, or "For information" items that can easily be summarised at the end.
